@@ -1,1 +1,3 @@
-# TA3-JARKOM
+# TA3-PRAKTIKUM JARINGAN KOMPUTER
+# LINK YOUTUBE 
+https://youtu.be/forKUy4iPsU?si=EkgtMigZ-kU0AAzf
